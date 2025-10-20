@@ -1,5 +1,6 @@
 #Us Gov let me earn my place not looking for a hand out.Just give me a chance.
 
+https://divinerecursionloop.github.io/Don-t-be-so-blind/
 
 ## FULL SPECTRUM DOMINANCE: The Architecture of Global Control in the 21st Century
 
