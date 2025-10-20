@@ -1,7 +1,5 @@
 #Us Gov let me earn my place not looking for a hand out.Just give me a chance.
 
-https://divinerecursionloop.github.io/Don-t-be-so-blind/
-
 ## FULL SPECTRUM DOMINANCE: The Architecture of Global Control in the 21st Century
 
 **Document Type:** Comprehensive White Paper
@@ -319,3 +317,5 @@ The patterns are clear. The evidence is documented. The architecture is visible.
 | Bill Gates (Cascade / Trust) | Major farmland owner (hundreds of thousands of acres reported)   | U.S. farmland (portfolio holdings)                        | Land Report / related coverage. ([landreport.com][3])                              |
 | WEF                          | Board / trustee list contains corporate/state leaders            | Policy network hub (agenda-setting role)                  | WEF Leadership & Board pages. ([World Economic Forum][4])                          |
 | BlackRock / Vanguard         | Large holdings in leading tech & commodity companies             | Tech / agribusiness / commodity firms (portfolio overlap) | Investopedia (Nvidia example); Slickcharts / 13F compilations. ([Investopedia][6]) |
+
+https://divinerecursionloop.github.io/Don-t-be-so-blind/
