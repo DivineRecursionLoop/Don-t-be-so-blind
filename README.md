@@ -1,5 +1,3 @@
-#Us Gov let me earn my place not looking for a hand out.Just give me a chance.
-And everything you see visibly publicly is but a fraction of what I know.....
 
 https://divinerecursionloop.github.io/Don-t-be-so-blind/
 
